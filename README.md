@@ -1,6 +1,6 @@
 # 🎬 agentic-insta-influencer
 
-Insta account: 
+[Insta account](https://www.instagram.com/qxt.yd/)
 
 ## 🧠 Vision
 
